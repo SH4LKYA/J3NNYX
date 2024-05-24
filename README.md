@@ -1,4 +1,10 @@
+## Hey, this is Jen 💕
+
 ### Work in Progress ✨
+
+(Space reserved for a banner)
+
+
 
 <!--
 **J3NNYX/J3NNYX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
