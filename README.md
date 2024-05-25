@@ -1,4 +1,4 @@
-## Hey, this is Jen 💕
+## Hey, this is Jenny 💕
 
 ### Work in Progress ✨
 
