@@ -1,8 +1,7 @@
-## Hey, this is Jenny 💕
+## Hey, this is Jen 💕
 
 ### Work in Progress ✨
 
-![https://github.com/j3nnyx](./banner_github.png)
 
 
 
